@@ -1,4 +1,4 @@
-I can cook a .py 😉😉😉
+I can cook a py 😉😉😉
 -👋 Hi, I’m @nick_horrors73
 - email nickienice1on2@gmail.com
 
